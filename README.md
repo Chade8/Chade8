@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Chade8
 - 👀 I’m interested in Business, Music, and Health
 - 🌱 I’m currently learning how to be a Full-Stack Programmer 
-- 💞️ I’m looking to collaborate on any and currently everything 
+- 💞️ I've always looked to be of value a rather than just successful.  
 - 📫 How to reach me. chad.king82@yahoo.com
 
 <!---
